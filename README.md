@@ -1,0 +1,6 @@
+[![make.fun · u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7](https://make.fun/badge/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7.svg)](https://make.fun/bounty/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7?utm_source=makefun&utm_medium=badge&utm_campaign=u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7)
+[![rank](https://make.fun/badge/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7/Ikball53/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7/rank.svg)](https://make.fun/bounty/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7/leaderboard?utm_source=makefun&utm_medium=badge&utm_campaign=u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7)
+[![reward](https://make.fun/badge/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7/Ikball53/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7/reward.svg)](https://make.fun/bounty/u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7?utm_source=makefun&utm_medium=badge&utm_campaign=u-motasimfuad-notes-from-a-passive-aggressive-fridge-83c00ad7)
+# Notes From a Passive-Aggressive Fridge
+
+A single dry note from a smart fridge that has been keeping score: it counted the expired yogurt, logged every door opening, and finally demoted itself to a cold closet its owner only visits at 2 a.m.
